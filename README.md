@@ -2,7 +2,7 @@
 
 ## 数据参考
 
-> [数据来源](https://www.bilibili.com/video/BV1794y1a7y4/?spm_id_from=333.1387.homepage.video_card.click&vd_source=857ae8fbced0ce6b196b0b0b931e3d87)
+> 数据来源：[【生活化减脂减肥】从理论到案例 就吃食堂外卖✅](https://www.bilibili.com/video/BV1794y1a7y4/?spm_id_from=333.1387.homepage.video_card.click&vd_source=857ae8fbced0ce6b196b0b0b931e3d87)
 
 ---
 
